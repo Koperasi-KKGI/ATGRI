@@ -83,11 +83,14 @@ ATGRI terbuka untuk:
 - Sponsor dan media partner yang ingin mendukung gerakan nasional ini  
 
 📩 **Hubungi kami:**  
-Email: [info@atgri.my.id](mailto:info@atgri.my.id)  
-Website: [https://atgri.my.id](https://atgri.my.id) *(Coming Soon)*  
-Facebook: [ATGRI.OFFICIAL](https://s.id/atgri)
-Instagram: [-]()
-YouTube: [-]()
+- Email: [admin@atgri.my.id](mailto:admin@atgri.my.id)
+- Website: [https://atgri.my.id](https://www.atgri.my.id)
+- Facebook: [ATGRI.OFFICIAL](https://s.id/atgri)
+- Instagram: [atgri.official](https://www.instagram.com/atgri.official/)
+- YouTube: [ATGRI](https://www.youtube.com/@ATGRI)
+- Tiktok : [@atgri](https://www.tiktok.com/@atgri4)
+
+
 
 ---
 
